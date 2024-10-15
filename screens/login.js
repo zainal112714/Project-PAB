@@ -1,3 +1,1 @@
-Ya allah
-Please help me
-Bismillah ya allah
+Yallah Bismillah
